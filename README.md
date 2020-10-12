@@ -7,5 +7,5 @@
 - ⚡ Fun fact: I like fps Games 🤣
 
 #### Connect with me: 
-Discord, TOXXIC#3100
+Discord, `TOXXIC#3100`
 
