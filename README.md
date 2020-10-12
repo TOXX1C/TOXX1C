@@ -8,5 +8,5 @@
 - ⚡ Fun fact: I like fps Games 🤣
 
 #### Connect with me: 
-[#7289DA](https://discord.com/channels/@me)
+:discord:, TOXXIC#3100
 
